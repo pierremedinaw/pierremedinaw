@@ -68,7 +68,7 @@ I'm interested in opportunities involving:
 - Technical Leadership and AI Solutions Architecture
 
 **Location:** Valencia, Spain  
-**Languages:** Spanish (Native), English (B2)  
+**Languages:** Spanish (Native), English (B2)  , German A1
 **Open to:** Remote and international opportunities
 
 ## 📬 Connect With Me
